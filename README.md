@@ -8,4 +8,3 @@
 ![Screen Shot 2565-05-31 at 18 47 43](https://user-images.githubusercontent.com/98745942/230614396-c11fe9f8-f871-41c5-9fac-e9cde3153152.png)
 ![Screen Shot 2565-05-31 at 18 47 50](https://user-images.githubusercontent.com/98745942/230614409-78971e9e-9301-4e1d-b0a8-1b6eac8bd77b.png)
 ![Screen Shot 2565-05-31 at 18 48 26](https://user-images.githubusercontent.com/98745942/230614420-3640e73c-a493-4894-887b-da88f8291c07.png)
-![Screen Shot 2565-05-31 at 18 49 29](https://user-images.githubusercontent.com/98745942/230614427-827d1c47-2aac-45a3-ac40-158eeef9a6ea.png)
